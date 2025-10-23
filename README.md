@@ -2,13 +2,13 @@
 
 I'm **Amado** and I currently work at **Knowit** as a **Test & Quality Manager**, with assignment at Inter IKEA.
 
----
+
 
 ## 🔗 Connect With Me
 
 You can connect with me on [LinkedIn](https://www.linkedin.com/in/ahmadalkhateeb1986/)
 
----
+
 
 ## 🛠 Skills & Technologies
 
